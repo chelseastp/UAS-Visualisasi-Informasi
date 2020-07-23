@@ -1,1 +1,0 @@
-# UAS-Visualisasi-Informasi
